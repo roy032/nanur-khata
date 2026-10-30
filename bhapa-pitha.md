@@ -8,3 +8,5 @@ Ingredients:
 Steps:
 1. Mix the rice flour with warm water into a soft dough.
 2. Fill with coconut and gur, then steam for 10 minutes.
+
+Tip: serve warm.
